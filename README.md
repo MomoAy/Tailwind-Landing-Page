@@ -1,0 +1,7 @@
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/df2de29c-5e91-40e2-9d91-5c9d39195cf5)
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/46511bbc-5bdf-4ac2-926d-01bfc45924fc)
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/96df0696-332b-4631-9a30-1849a4f60050)
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/eed9bd77-cef0-4557-ac88-0ffc30556399)
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/ab1d8129-d097-4bfc-8c40-2cfaf77cf9d5)
+![image](https://github.com/MomoAy/Tailwind-Landing-Page/assets/120620847/08912752-b675-4ecf-806f-2015f3719024)
+![Uploading image.png…]()
